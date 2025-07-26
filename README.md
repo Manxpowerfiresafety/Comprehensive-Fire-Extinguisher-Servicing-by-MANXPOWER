@@ -24,3 +24,15 @@ MANXPOWER offers professional servicing for:<br>
 Neglecting <a href="https://manximpex.com/fire-extinguisher-2/" title=" fire extinguisher servicing" alt" fire extinguisher servicing" <a> fire extinguisher servicing</a> can have serious consequences. With MANXPOWER, you gain a reliable partner committed to fire safety excellence. Our servicing solutions not only extend the life of your extinguishers but also ensure you meet all regulatory and safety standards.<br>
 <h5>Choose MANXPOWER—because when it comes to fire safety, experience and reliability matter most.</h5>
 <h5>Contact us today for a free fire safety consultation or to schedule your next extinguisher servicing.</h5>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/fire-extinguisher-2/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>How to Properly Maintain and Inspect Fire Extinguishers: https://manximpex.com/maintain-inspect-fire-extinguishers/</b>
